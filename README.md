@@ -6,4 +6,4 @@
 2) i have never left Oceania
 3) i have spent a night sleeping in the streets of CHCH
 
-<---- i have lived in Canterbury for my whole life--->
+<---- the lie is #2 --->
